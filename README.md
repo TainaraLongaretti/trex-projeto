@@ -1,1 +1,2 @@
 # trex-projeto
+## JOGO DO DINOSAURO SEM INTERNET DO GOOGLE💮
